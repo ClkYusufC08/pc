@@ -1,1 +1,1 @@
-# pc
+**CHYPER CODE İSTEDİĞİNİZ GİBİ KULLANIN**
